@@ -12,3 +12,7 @@ Heute habe ich mein Wissen beim Modul 320 und Modul 231 aufgefrischt, damit ich 
 ## 23.08.2024
 
 Heute habe ich die Modulabgaben von 231 fertiggestellt und für einen Französisch und Finanztest vorbereitet.
+
+## 30.08.2024
+
+Heute werde ich mich um die abgaben des Moduls 231 kümmern da wir es übermorgen abgeben müssen.

@@ -23,4 +23,4 @@ Heute werde ich mich um die abgaben des Moduls 231 kümmern da wir es übermorge
 
 ## 13.09.2024
 
-Heute werde ich mich um die abgaben des Moduls 231 kümmern da wir es übermorgen abgeben müssen.
+Heute werde ich mich um die abgaben des Moduls 231 kümmern da wir es nächste Woche abgeben müssen.

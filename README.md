@@ -24,3 +24,10 @@ Heute werde ich mich um die abgaben des Moduls 231 kümmern da wir es übermorge
 ## 13.09.2024
 
 Heute werde ich mich um die abgaben des Moduls 231 kümmern da wir es nächste Woche abgeben müssen.
+
+## 20.09.2024
+
+Heute werde ich alle Abgaben und Tests die im HZ5 beim Modul 231 abschliessen und abgeben.
+Was haben sie mitgenommen? Ich habe über die Pflichten die die Webseiten haben wenn es um Nutzerinformationen geht und die Strafen wenn sie nicht eingehalten werden
+Ich habe Die  Hatten sie Probleme; wo? keine Probleme es ging ja nur darum das man sich die Daten merken oder teilweise beim auftrag zusammenfassen. 
+Brauchen Sie Unterstützung; wo? nein keine Unterstützung nötig.

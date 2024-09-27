@@ -33,4 +33,4 @@ Ich habe Die  Hatten sie Probleme; wo? keine Probleme es ging ja nur darum das m
 Brauchen Sie Unterstützung; wo? nein keine Unterstützung nötig.
 
 ## 27.09.2024
-Heute werde ich am Modul 231 an dem HZ4 arbeiten.
+Heute werde ich am Modul 231 an dem HZ4 und HZ6 arbeiten und abgeben, wir sie bis Übermorgen abgegeben haben müssen. Ich werde mich in diesen Modulen über die Powerpoints auf Moodle über die Gesetzartikel die bei den Nutzerdaten gelten informiert und dann werde ich mit dem wissen die Fragen in den Moodletests beantworten und die Abgaben damit ausfüllen.
